@@ -4,6 +4,10 @@ title: "Wedding Gifts"
 categories: talks
 ---
 
+## Reading
+
+[Click Here!](https://www.eslfast.com/easyread/es/easy005.htm)
+
 ## Wedding Gifts
 
 ### The Story
