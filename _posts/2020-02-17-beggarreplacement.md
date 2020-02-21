@@ -11,10 +11,8 @@ categories: talks
 
 ## The Story
 
-´´´
-The doorbell rang, and the housewife answered it. She found two beggars outside. "So, you're begging in twos now?!" she exclaimed.
-" No, only for today," one of them replied. "I'm showing my replacement the ropes before going on holiday."
-´´´
+> The doorbell rang, and the housewife answered it. She found two beggars outside "So, you're begging in twos now?!" she exclaimed. " No, only for today," one of them replied. "I'm showing my replacement the ropes before going on holiday."
+
 
 
 ### Vocabulary Practice
