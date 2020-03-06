@@ -1,15 +1,14 @@
 ---
 layout: postforbigtext
-title: "Leaving for Work"
+title: "A Boy or a Girl
+"
 categories: talks
 ---
 
 ## Reading 
 
-At precisely 6 a.m., the sound of the alarm clock pierces the air. Sandy drags herself out of bed and begins her morning routine with a quick shower. After her shower, she prepares a simple breakfast. Grabbing a clean bowl from the dishwasher, she empties into it a packet of instant oatmeal. She pours in a cup of milk, stirs and heats the mixture in the microwave. While waiting for her oatmeal to cook, she dresses for the day, mindful of the weather.
+AStuart and Brenda are having a baby together. Brenda is seven months pregnant. Stuart and Brenda still don't know if the baby is a boy or a girl. The doctor had asked them if they wanted to know, and they said no. They do not want to know, because they want to be surprised. They think it will make the day of the birth more special. Their friends and family do not approve. Stuart's mom wants to know the sex of the baby because she wants to know what color bib to buy. If it's a boy, then she will buy a blue bib. If it's a boy, then she will buy a pink bib. Stuart's mom has been nagging him to ask the doctor about the baby's sex. Stuart decides to listen to his mom's suggestion.
 
-Fully dressed now, she removes her oatmeal from the microwave, which has now cooled just enough to suit her taste. It is her favorite flavor, apple cinnamon. As she savors each bite, she is reminded of her mother, who always made sure Sandy ate a warm breakfast before leaving the house in the morning.
+Brenda is furious. She tells Stuart not to listen to his mom. Stuart is conflicted. He loves his wife, but he also loves his mom. Stuart decides to secretly go to the hospital to ask the doctor for the information. The doctor tells Stuart that the baby is a boy. Stuart tells his mom the news. She is happy. She goes to the store to buy a lot of blue clothes. Stuart tells his mom that she can't tell Brenda. Stuart's mom agrees.
 
-Checking the time on her phone, she hurriedly swallows the last few mouthful of oatmeal before heading out. As she steps into the street, a gust of wind blows back her hair. She covers her head with the hood of her coat, tightens the scarf around her neck, and braces for her walk to the train station.
-
-After settling into her seat on the train, memories of her mother stir again. She takes out her phone and texts: "Hey mom, thanks for the scarf you knit me. It came in real handy this morning. Love always."
+The next day, Brenda has a baby shower. Stuart's mom is also invited. When it is time for Brenda to open the presents, Stuart's mom hands hers. Brenda slowly opens it, and it is a blue backpack. At that moment, Brenda knows she is having a boy.
