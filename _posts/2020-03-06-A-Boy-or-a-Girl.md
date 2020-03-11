@@ -5,7 +5,7 @@ title: "A Boy or a Girl
 categories: talks
 ---
 
-## Reading 
+## Reading ,
 
 AStuart and Brenda are having a baby together. Brenda is seven months pregnant. Stuart and Brenda still don't know if the baby is a boy or a girl. The doctor had asked them if they wanted to know, and they said no. They do not want to know, because they want to be surprised. They think it will make the day of the birth more special. Their friends and family do not approve. Stuart's mom wants to know the sex of the baby because she wants to know what color bib to buy. If it's a boy, then she will buy a blue bib. If it's a boy, then she will buy a pink bib. Stuart's mom has been nagging him to ask the doctor about the baby's sex. Stuart decides to listen to his mom's suggestion.
 
